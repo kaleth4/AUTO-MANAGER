@@ -1,4 +1,5 @@
 # AUTO-MANAGER
+<img width="832" height="944" alt="Gemini_Generated_Image_f4kuswf4kuswf4ku" src="https://github.com/user-attachments/assets/731a3918-428a-4a16-8def-e18640407858" />
 
 # Resumen de Proyectos Creados
 
